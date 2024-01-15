@@ -42,3 +42,6 @@ welcome to my uh github. check out the rentrys for info abt me and whatnot :3
 ![](https://external-media.spacehey.net/media/shJGn4uXjpKdvh30CLUiZSwCbTtAHi479t_MKK_tIeE4=/https://images-wixmp-ed30a86b8c4ca887773594c2.wixmp.com/f/cb394fb6-4f19-4257-8c2b-7d1f91b9d0db/d1nfrs1-d1680eaa-c9c8-496e-9813-35156332fa68.jpg?token=eyJ0eXAiOiJKV1QiLCJhbGciOiJIUzI1NiJ9.eyJzdWIiOiJ1cm46YXBwOjdlMGQxODg5ODIyNjQzNzNhNWYwZDQxNWVhMGQyNmUwIiwiaXNzIjoidXJuOmFwcDo3ZTBkMTg4OTgyMjY0MzczYTVmMGQ0MTVlYTBkMjZlMCIsIm9iaiI6W1t7InBhdGgiOiJcL2ZcL2NiMzk0ZmI2LTRmMTktNDI1Ny04YzJiLTdkMWY5MWI5ZDBkYlwvZDFuZnJzMS1kMTY4MGVhYS1jOWM4LTQ5NmUtOTgxMy0zNTE1NjMzMmZhNjguanBnIn1dXSwiYXVkIjpbInVybjpzZXJ2aWNlOmZpbGUuZG93bmxvYWQiXX0.9VEuDv4dWVNC-UaIX4X1_Yz1rKWqRpl8ddWEIduGDNs)
 ![](https://external-media.spacehey.net/media/sPFUmcegi0rz-9X-qYzita-YBNm3d19mw877sQ9WX4AQ=/https://cdn.discordapp.com/attachments/1030651939454717992/1031246572702400642/unknown.png)
 ![](https://cdn.discordapp.com/attachments/862833706271899678/1196502599462031410/68747470733a2f2f66696c65732e636174626f782e6d6f652f7a79363761362e77656270.png?ex=65b7dce1&is=65a567e1&hm=6a736170ab199dd86551ef3f0b90fc52766af88629143a7c75c53447f84c69b9&)
+
+
+![](https://64.media.tumblr.com/98cbff73dff1acd0b91e4acfde07cd9f/f7f48592f66a655a-23/s500x750/b01ae591a4d24de9cc02a7b85e2d0c76b3ad6375.pnj)
