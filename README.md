@@ -6,7 +6,6 @@ welcome to my uh github. check out the rentrys for info abt me and whatnot :3
 
 ![](https://64.media.tumblr.com/caa86a951ef416564ce0693f43fac189/cf9d480949b77157-c5/s640x960/08f0ac6023becc625d17e015c8cc2415cf8d9d1e.gifv)
 ![](https://64.media.tumblr.com/03bc9f342f7771a83d8bbcaaad6a1a0a/3558b906d3e28e70-ea/s640x960/b49c5b77a7f686076059c0c4a8863d0b8e60863d.gifv)
-![](https://64.media.tumblr.com/98cbff73dff1acd0b91e4acfde07cd9f/f7f48592f66a655a-23/s500x750/b01ae591a4d24de9cc02a7b85e2d0c76b3ad6375.pnj)
 
 ![](https://mikejima.crd.co/assets/images/gallery09/488c9779.gif?v=03449813)
 ![](https://64.media.tumblr.com/bb8140d2e8a35e966d23a38fff047677/3558b906d3e28e70-46/s250x400/47951ca3fc6c70ce01a67bc55209bf8d2a58c697.gifv)
