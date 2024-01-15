@@ -6,6 +6,7 @@ welcome to my uh github. check out the rentrys for info abt me and whatnot :3
 
 ![](https://64.media.tumblr.com/caa86a951ef416564ce0693f43fac189/cf9d480949b77157-c5/s640x960/08f0ac6023becc625d17e015c8cc2415cf8d9d1e.gifv)
 ![](https://64.media.tumblr.com/03bc9f342f7771a83d8bbcaaad6a1a0a/3558b906d3e28e70-ea/s640x960/b49c5b77a7f686076059c0c4a8863d0b8e60863d.gifv)
+![](https://64.media.tumblr.com/98cbff73dff1acd0b91e4acfde07cd9f/f7f48592f66a655a-23/s500x750/b01ae591a4d24de9cc02a7b85e2d0c76b3ad6375.pnj)
 
 ![](https://mikejima.crd.co/assets/images/gallery09/488c9779.gif?v=03449813)
 ![](https://64.media.tumblr.com/bb8140d2e8a35e966d23a38fff047677/3558b906d3e28e70-46/s250x400/47951ca3fc6c70ce01a67bc55209bf8d2a58c697.gifv)
@@ -43,5 +44,8 @@ welcome to my uh github. check out the rentrys for info abt me and whatnot :3
 ![](https://external-media.spacehey.net/media/sPFUmcegi0rz-9X-qYzita-YBNm3d19mw877sQ9WX4AQ=/https://cdn.discordapp.com/attachments/1030651939454717992/1031246572702400642/unknown.png)
 ![](https://cdn.discordapp.com/attachments/862833706271899678/1196502599462031410/68747470733a2f2f66696c65732e636174626f782e6d6f652f7a79363761362e77656270.png?ex=65b7dce1&is=65a567e1&hm=6a736170ab199dd86551ef3f0b90fc52766af88629143a7c75c53447f84c69b9&)
 
+skins you can find me in :3
 
-![](https://64.media.tumblr.com/98cbff73dff1acd0b91e4acfde07cd9f/f7f48592f66a655a-23/s500x750/b01ae591a4d24de9cc02a7b85e2d0c76b3ad6375.pnj)
+![](https://cdn.discordapp.com/attachments/862833706271899678/1196588387675668571/pony-town-I_love_my_girlfriend_-boop-6x_1.gif?ex=65b82cc7&is=65a5b7c7&hm=18b11d37d5f1c764817f6008065e5b71059b14cf3b994f2cdc7b7b261524f1f7&)
+![](https://cdn.discordapp.com/attachments/862833706271899678/1196588968242843759/pony-town-BRIANSTELLS_-_TWF_-_KIN___CH-double-nod-6x.gif?ex=65b82d51&is=65a5b851&hm=e5de435841b5ce2bee3f7d425acd5d2a5740773135fcde233d586f88d458af56&)
+![](https://cdn.discordapp.com/attachments/862833706271899678/1196589369730027630/pony-town-ORANGE_KRAKEN_-_FURSONA-silly-wink-ponyplush-6x.gif?ex=65b82db1&is=65a5b8b1&hm=279a780651aaf1dacf937b4ed153ee11092f98ad4be24a567633e827e11eb013&)
