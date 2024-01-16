@@ -48,3 +48,4 @@ skins you can find me in :3
 ![](https://cdn.discordapp.com/attachments/862833706271899678/1196588387675668571/pony-town-I_love_my_girlfriend_-boop-6x_1.gif?ex=65b82cc7&is=65a5b7c7&hm=18b11d37d5f1c764817f6008065e5b71059b14cf3b994f2cdc7b7b261524f1f7&)
 ![](https://cdn.discordapp.com/attachments/862833706271899678/1196588968242843759/pony-town-BRIANSTELLS_-_TWF_-_KIN___CH-double-nod-6x.gif?ex=65b82d51&is=65a5b851&hm=e5de435841b5ce2bee3f7d425acd5d2a5740773135fcde233d586f88d458af56&)
 ![](https://cdn.discordapp.com/attachments/862833706271899678/1196589369730027630/pony-town-ORANGE_KRAKEN_-_FURSONA-silly-wink-ponyplush-6x.gif?ex=65b82db1&is=65a5b8b1&hm=279a780651aaf1dacf937b4ed153ee11092f98ad4be24a567633e827e11eb013&)
+![](https://cdn.discordapp.com/attachments/862833706271899678/1196637743057481898/pony-town-NERU_AKITA_-_VOCALOID_-_ME-laugh-ponyplush-6x.gif?ex=65b85abe&is=65a5e5be&hm=6bbc066c857b4f7058cd90d9b1a8688df31b6e02571d3fc9a06443a8cda32e8a&)
