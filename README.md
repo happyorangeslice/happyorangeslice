@@ -45,7 +45,7 @@ welcome to my uh github. check out the rentrys for info abt me and whatnot :3
 
 skins you can find me in :3
 
-![](https://cdn.discordapp.com/attachments/862833706271899678/1196588387675668571/pony-town-I_love_my_girlfriend_-boop-6x_1.gif?ex=65b82cc7&is=65a5b7c7&hm=18b11d37d5f1c764817f6008065e5b71059b14cf3b994f2cdc7b7b261524f1f7&)
+![](https://cdn.discordapp.com/attachments/862833706271899678/1196999557855326208/pony-town-I_love_my_girlfriend_-boop-blinking-padded-6x.gif?ex=65b9abb5&is=65a736b5&hm=7782ecfa04bb7dbd452d66e5cc6f0d5d0ed85feef87cda1be0a86e6493363b13&)
 ![](https://cdn.discordapp.com/attachments/862833706271899678/1196588968242843759/pony-town-BRIANSTELLS_-_TWF_-_KIN___CH-double-nod-6x.gif?ex=65b82d51&is=65a5b851&hm=e5de435841b5ce2bee3f7d425acd5d2a5740773135fcde233d586f88d458af56&)
 ![](https://cdn.discordapp.com/attachments/862833706271899678/1196589369730027630/pony-town-ORANGE_KRAKEN_-_FURSONA-silly-wink-ponyplush-6x.gif?ex=65b82db1&is=65a5b8b1&hm=279a780651aaf1dacf937b4ed153ee11092f98ad4be24a567633e827e11eb013&)
 ![](https://cdn.discordapp.com/attachments/862833706271899678/1196959280914497686/pony-town-NERU_AKITA_-_VOCALOID_-_ME-laugh-blinking-padded-ponyplush-6x.gif?ex=65b98632&is=65a71132&hm=54338f81a7604f7c5a029962118c1d3426d47507c025be306adef42f978c2951&)
