@@ -1,27 +1,5 @@
 ![](https://cdn.discordapp.com/attachments/1149515986312122399/1199894068478615562/Untitled359_20240124185012.png?ex=65c4336e&is=65b1be6e&hm=e105a90ed96da4d9bbcc354bd9eb41a3d19f80e98aa8d368e48e87026004a9fc&)
 
-![](https://media1.tenor.com/m/ZddLzBnRpukAAAAd/dead-plate-rody-dead-plate.gif)
-
-welcome to my uh github. check out the rentrys for info abt me and whatnot :3
-
-![](https://64.media.tumblr.com/caa86a951ef416564ce0693f43fac189/cf9d480949b77157-c5/s640x960/08f0ac6023becc625d17e015c8cc2415cf8d9d1e.gifv)
-![](https://64.media.tumblr.com/03bc9f342f7771a83d8bbcaaad6a1a0a/3558b906d3e28e70-ea/s640x960/b49c5b77a7f686076059c0c4a8863d0b8e60863d.gifv)
-
-![](https://mikejima.crd.co/assets/images/gallery09/488c9779.gif?v=03449813)
-![](https://64.media.tumblr.com/bb8140d2e8a35e966d23a38fff047677/3558b906d3e28e70-46/s250x400/47951ca3fc6c70ce01a67bc55209bf8d2a58c697.gifv)
-![](https://y2k.neocities.org/blinkiez/252731rd2czu7vk5.gif)
-![](https://64.media.tumblr.com/d28f09e884de57461e4c1722d99d2b34/b4efadd60ae6c6cc-41/s250x400/cbbd117133e762b887592fc4f3cbfe52ea19791f.gifv)
-![](https://64.media.tumblr.com/02ec18495084d57d3c05ce7fb7eb335d/4a90efbd82875386-75/s250x400/7d019ffe2a62ddc4b60c6067d92e8d27b6b8f998.gifv)
-![](https://64.media.tumblr.com/274419cae1007006bd37b1af8026132b/4a90efbd82875386-d7/s250x400/41adcce14b6dc6eb98272ad9565ac0d98a30723d.gifv)
-![](https://y2k.neocities.org/blinkiez/coffin.gif)
-![](https://64.media.tumblr.com/218c56de7a4c03301d390d995bc3c85b/06c8f3f7fec6aa6f-77/s250x400/c2a074684d30e5342f49eefb47803cb2bac8a3cd.gifv)
-![](https://64.media.tumblr.com/95852d71e31ff25c01df642f4af6bd5c/5236571abd779e3a-c7/s250x400/f44f8e0ba0a96a8288d2d1afe7f1400a9a026dda.gifv)
-![](https://64.media.tumblr.com/bcf10806d0b1e0ac2bd7776d8e2f07ca/f20f0731857f3568-dc/s250x400/ff90f8e3ea681a5baa51a69b696bfd5c8bd6e6f4.gifv)
-![](https://64.media.tumblr.com/afb0432119d50ea89edc15420e435f18/c31d53c05dc221a7-9a/s250x400/b0e066182782009dd678b1861668cab14f43c5a3.gifv)
-![](https://64.media.tumblr.com/c40261e64ec92fd07d36dfd71cc559d7/e666d36b799e815e-4a/s250x400/9364f6a64c5a3adb006270359dcd7a5e9717f827.gifv)
-![](https://64.media.tumblr.com/028ecb83f1ca3a580f3c9d966f1870aa/f0424b13e269e0d1-22/s250x400/8bf55d72669b9c80bbe9bee7dd1904bd0d601e52.gif)
-![](https://64.media.tumblr.com/11d7604659fa720296041dab5f35775b/a2c22d45d485e6f7-71/s250x400/5701accfc29c27eb9bccad3df8b1033f14539135.gifv)
-
 ![](https://external-media.spacehey.net/media/sjgYACi_shwbZLfs91IvL9-OCeVOeb40qKoCesp-egd8=/https://kopawz.neocities.org/stamphoard/stamps/silly.jpg)
 ![](https://external-media.spacehey.net/media/s75n4UyunwpYVi92GNWF8l1CIiIN5Rvl6BEVGXQifXdE=/https://images-wixmp-ed30a86b8c4ca887773594c2.wixmp.com/f/f8c94150-0cb0-4546-a87c-8a171001ba13/d3ng4we-6591af4f-70d6-4922-8451-f8ea47e78907.png?token=eyJ0eXAiOiJKV1QiLCJhbGciOiJIUzI1NiJ9.eyJzdWIiOiJ1cm46YXBwOjdlMGQxODg5ODIyNjQzNzNhNWYwZDQxNWVhMGQyNmUwIiwiaXNzIjoidXJuOmFwcDo3ZTBkMTg4OTgyMjY0MzczYTVmMGQ0MTVlYTBkMjZlMCIsIm9iaiI6W1t7InBhdGgiOiJcL2ZcL2Y4Yzk0MTUwLTBjYjAtNDU0Ni1hODdjLThhMTcxMDAxYmExM1wvZDNuZzR3ZS02NTkxYWY0Zi03MGQ2LTQ5MjItODQ1MS1mOGVhNDdlNzg5MDcucG5nIn1dXSwiYXVkIjpbInVybjpzZXJ2aWNlOmZpbGUuZG93bmxvYWQiXX0.PMI5H6cYmoat6sOQwvTaRLyfu1E8pl7298GyqBpwWXk)
 ![](https://external-media.spacehey.net/media/sbbloj8jwzshUQM6iMuI-Sc0mmmGZRViL5zsaGqwwjIE=/https://images-wixmp-ed30a86b8c4ca887773594c2.wixmp.com/f/716f8f4f-c628-4e91-86c6-277099ce38a9/d30cd3p-c62c12bf-dd59-4f60-b0ce-f5ac32d64eb2.png?token=eyJ0eXAiOiJKV1QiLCJhbGciOiJIUzI1NiJ9.eyJzdWIiOiJ1cm46YXBwOjdlMGQxODg5ODIyNjQzNzNhNWYwZDQxNWVhMGQyNmUwIiwiaXNzIjoidXJuOmFwcDo3ZTBkMTg4OTgyMjY0MzczYTVmMGQ0MTVlYTBkMjZlMCIsIm9iaiI6W1t7InBhdGgiOiJcL2ZcLzcxNmY4ZjRmLWM2MjgtNGU5MS04NmM2LTI3NzA5OWNlMzhhOVwvZDMwY2QzcC1jNjJjMTJiZi1kZDU5LTRmNjAtYjBjZS1mNWFjMzJkNjRlYjIucG5nIn1dXSwiYXVkIjpbInVybjpzZXJ2aWNlOmZpbGUuZG93bmxvYWQiXX0.fTRhFWL_1JxM4x_iBAFbUcE0oWx9_QWT2Oz2aob0uWc)
@@ -43,7 +21,7 @@ welcome to my uh github. check out the rentrys for info abt me and whatnot :3
 ![](https://external-media.spacehey.net/media/sPFUmcegi0rz-9X-qYzita-YBNm3d19mw877sQ9WX4AQ=/https://cdn.discordapp.com/attachments/1030651939454717992/1031246572702400642/unknown.png)
 ![](https://cdn.discordapp.com/attachments/862833706271899678/1196502599462031410/68747470733a2f2f66696c65732e636174626f782e6d6f652f7a79363761362e77656270.png?ex=65b7dce1&is=65a567e1&hm=6a736170ab199dd86551ef3f0b90fc52766af88629143a7c75c53447f84c69b9&)
 
-skins you can find me in :3
+some skins you can find me in :3
 
 ![](https://cdn.discordapp.com/attachments/862833706271899678/1196999557855326208/pony-town-I_love_my_girlfriend_-boop-blinking-padded-6x.gif?ex=65b9abb5&is=65a736b5&hm=7782ecfa04bb7dbd452d66e5cc6f0d5d0ed85feef87cda1be0a86e6493363b13&)
 ![](https://cdn.discordapp.com/attachments/862833706271899678/1196588968242843759/pony-town-BRIANSTELLS_-_TWF_-_KIN___CH-double-nod-6x.gif?ex=65b82d51&is=65a5b851&hm=e5de435841b5ce2bee3f7d425acd5d2a5740773135fcde233d586f88d458af56&)
