@@ -1,4 +1,4 @@
-![](https://cdn.discordapp.com/attachments/862833706271899678/1195784173370216608/Untitled344_1.png?ex=65b53fcb&is=65a2cacb&hm=583ff82a54c4a5c44fedae332b22292bc471d7b7a08bd7c3c141b1be09efc220&)
+![](https://cdn.discordapp.com/attachments/1149515986312122399/1199894068478615562/Untitled359_20240124185012.png?ex=65c4336e&is=65b1be6e&hm=e105a90ed96da4d9bbcc354bd9eb41a3d19f80e98aa8d368e48e87026004a9fc&)
 
 ![](https://media1.tenor.com/m/ZddLzBnRpukAAAAd/dead-plate-rody-dead-plate.gif)
 
