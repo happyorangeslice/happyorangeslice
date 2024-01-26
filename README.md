@@ -1,4 +1,6 @@
-![](https://cdn.discordapp.com/attachments/862833706271899678/1199895311951339600/Untitled359_20240124185012.png?ex=65c43497&is=65b1bf97&hm=764be35422bfe22b1e1139f4144809cd754102ea79c8636e7736ab6dc0c465ef&)
+<p align="center">
+  <img width="500" height="425" src="https://cdn.discordapp.com/attachments/862833706271899678/1199895311951339600/Untitled359_20240124185012.png?ex=65c43497&is=65b1bf97&hm=764be35422bfe22b1e1139f4144809cd754102ea79c8636e7736ab6dc0c465ef&">
+</p>
 
 ![](https://external-media.spacehey.net/media/sjgYACi_shwbZLfs91IvL9-OCeVOeb40qKoCesp-egd8=/https://kopawz.neocities.org/stamphoard/stamps/silly.jpg)
 ![](https://external-media.spacehey.net/media/s75n4UyunwpYVi92GNWF8l1CIiIN5Rvl6BEVGXQifXdE=/https://images-wixmp-ed30a86b8c4ca887773594c2.wixmp.com/f/f8c94150-0cb0-4546-a87c-8a171001ba13/d3ng4we-6591af4f-70d6-4922-8451-f8ea47e78907.png?token=eyJ0eXAiOiJKV1QiLCJhbGciOiJIUzI1NiJ9.eyJzdWIiOiJ1cm46YXBwOjdlMGQxODg5ODIyNjQzNzNhNWYwZDQxNWVhMGQyNmUwIiwiaXNzIjoidXJuOmFwcDo3ZTBkMTg4OTgyMjY0MzczYTVmMGQ0MTVlYTBkMjZlMCIsIm9iaiI6W1t7InBhdGgiOiJcL2ZcL2Y4Yzk0MTUwLTBjYjAtNDU0Ni1hODdjLThhMTcxMDAxYmExM1wvZDNuZzR3ZS02NTkxYWY0Zi03MGQ2LTQ5MjItODQ1MS1mOGVhNDdlNzg5MDcucG5nIn1dXSwiYXVkIjpbInVybjpzZXJ2aWNlOmZpbGUuZG93bmxvYWQiXX0.PMI5H6cYmoat6sOQwvTaRLyfu1E8pl7298GyqBpwWXk)
